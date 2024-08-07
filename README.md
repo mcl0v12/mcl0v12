@@ -1,4 +1,4 @@
-![Welcome to My GitHub Profile](https://cdn.shopify.com/s/files/1/0879/8086/7880/files/portfolio-banner.png?v=1722945294)
+![Welcome to My GitHub Profile](https://cdn.shopify.com/s/files/1/0879/8086/7880/files/profile-banner.png?v=1723011724)
 
 ## About Me
 
